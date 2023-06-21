@@ -22,7 +22,7 @@ Feel free to explore the content and engage in discussions or provide feedback. 
 
 ## Contact
 
-If you have any suggestions, recommendations, or would like to connect with me, please feel free to reach out. You can contact me through [email address] or [social media handles].
+If you have any suggestions, recommendations, or would like to connect with me, please feel free to reach out. You can contact me through ggazzaneo1@gmail.com or Gabriel Martins Gazaneo on Linkedin.
 
 Thank you for visiting my repository, and I hope you find the information shared here useful and informative.
 
